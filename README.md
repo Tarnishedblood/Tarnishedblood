@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Tarnishedblood
+- 👀 I’m interested in video games 
+- 🌱 I’m currently learning to code
